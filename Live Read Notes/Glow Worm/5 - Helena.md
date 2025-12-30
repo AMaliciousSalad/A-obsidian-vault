@@ -1,0 +1,12 @@
+1. Yeah from the first few seconds I'm not a fan of Helena already. All aristocratic seeming or at least well off enough to have ceased any need to care for others, and is trying to force Gemma to drink from the clerk.
+2. Fuck, poor Gemma. Liking Helena less by the second, she's reminding me of a number of authority figures in my life right now.
+3. I like her even less now that she's forcing Gemma to drink her blood, and by the reaction to the idea that Gemma is having Helena has absolutely "taken advantage" of her when she's needed to drink from her before.
+4. Impressive how this is easily the least sexy vamp sex-adjacent scene I've read in a while. Like I do actually enjoy some toxic lesbian stuff, but this is giving something worse to me right now.
+5. "I would not have let it escalate further" the hell you wouldn't have. Also the "I am not a perfect person" made me fucking gag, I've had my parents and most of my other abusers say that to me so many times that phrase feels like poison.
+6. The degree to which Gemma and Viv are already so protective of each other is a nice upswing from thinking about that though.
+7. Yeah the way a group of very powerful, unchallenged, and embedded men might act is really damn easy to imagine. Sure they usually don't live several centuries or more irl but groups like that are fucking everywhere, in the corporate world, in the political world, in the religious world, etc. Every single one of them is nothing but blight.
+8. So the ultimate goal should be for Viv and Gemma to tear the vamp status quo and hierarchy to the ground, at least that's the opinion I'm holding at the moment.
+9. I think Helena is probably right, the men in charge almost certainly do admire what Cooper does/has been doing.
+10. Helena being a suffragette honestly doesn't mean much, of all feminist movements it's the one that's been whitewashed the most thoroughly, not surprising considering it was primarily interested in only obtaining rights for "well off" white women for the vast majority of its existence and the powers that be do love a bit of racism and classism even to the point where they might somewhat tolerate the rest of the movement.
+11. So Gemma has a dual "bloodline," very interesting.
+12. "It makes *men* erratic." Well I can think of a few implications that Helena might've been imbuing into that wording, some better than others.
